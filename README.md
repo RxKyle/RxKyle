@@ -9,7 +9,7 @@ and I end up shutting THEM DOWN...... ETC ETC......
 
 - I Am currently learning SLOWLY, INTO JAVA, KOTLIN, CSS, C, C#, C+ , C++, JAVASCRIPT, JSON, GIT ;P , And Python. (Also Sometimes I go Back and practice some more HTML So I don't forget it...... , 
 But TBH I DO HAVE A LOTTTTTTTTTTTTT TO LEARN ABOUT HTML YET REALLY, Because even if you have learned mainly even just ALL OF THE BASICS, And more........ ETC ETC, 
-there is ALWAYS just more to learn than that.......... * Siiiiiiiigggggh * ........... Aha Meh.......... BOOTSTRAP 3 & 4 LOOK PRETTY FUN AS WELL.....!!
+there is ALWAYS just more to learn than that.......... BOOTSTRAP 3 & 4 LOOK PRETTY FUN AS WELL.....!!
 
 - 💞️ I am NOT EXACTLY, Looking to really COLLABERATE, On much of ANYTHING RIGHT NOW, UNLESS.......... YOU ARE WILLING TO HELP AND TEACH ME WITH YOUR OWN GUIDANCE, 
 AND WITH YOUR OWN KNOWLEDGE AND WISDOM....... I'D LOVE TO LEARN FROM THE BEST, OF THE BEST.....!!
